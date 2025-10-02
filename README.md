@@ -1,6 +1,6 @@
 👋🏾 Hi! I’m Keesha, a vibrant force of curiosity and purpose.
 
-I’m a data storyteller with a heart for impact. Gabonese by roots, global in vision — I blend statistical thinking with business insight to turn numbers into economic growth and social change strategies.  
+I’m a data storyteller with a heart for impact. Gabonese by roots, global in vision , I blend statistical thinking with business insight to turn numbers into economic growth and social change strategies.  
 I help businesses sustain themselves, grow stronger, and build lasting empires, all in the service of driving meaningful impact.
 
 ###  What I’m Working On
@@ -16,7 +16,7 @@ I help businesses sustain themselves, grow stronger, and build lasting empires, 
 
 ---
 ###  Fun Fact  
-Ironically, I used to dread statistics in high school. Now it’s the language I use to teach, solve real-world problems, and help others make more intelligent decisions — and I’m all about it.
+Ironically, I used to dread statistics in high school. Now it’s the language I use to teach, solve real-world problems, and help others make more intelligent decisions and I’m all about it.
 What changed? **Reach out and you might change your mind about it as well**
 - [LinkedIn](https://www.linkedin.com/in/keeshaorlene/)  
 - 📧 keeshao.ngombo@gmail.com
