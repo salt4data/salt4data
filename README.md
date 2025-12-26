@@ -1,4 +1,4 @@
-👋🏾 Hi! I’m Keesha, a vibrant force of curiosity and purpose.
+👋🏾 Hi! I’m Keesha Ngombo,
 
 I’m a data storyteller with a heart for impact. Gabonese by roots, global in vision , I blend statistical thinking with business insight to turn numbers into economic growth and social change strategies.  
 I help businesses sustain themselves, grow stronger, and build lasting empires, all in the service of driving meaningful impact.
