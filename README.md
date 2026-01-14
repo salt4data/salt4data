@@ -22,7 +22,7 @@ What changed? **Reach out and you might change your mind about it as well**
 - 📧 keeshao.ngombo@gmail.com
   
 ---
-“Give me numbers, and I’ll tell you a story.”
+“Every number tells you a story.”
 
 ---
 <details close>
